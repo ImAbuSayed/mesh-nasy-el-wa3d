@@ -13,7 +13,7 @@
 | Lyric Writing Date | May 01, 2026 |
 | Song Page | [Open Song Page](https://imabusayed.github.io/mesh-nasy-el-wa3d/) |
 | License | [View License](./LICENSE.md) |
-| Get License | [Get a Licensing Quote for Mesh Nasy El Wa3d](https://music.abusayed.com.bd/Licensing/) |
+| Get License | [Secure Licensing Rights for Mesh Nasy El Wa3d](https://music.abusayed.com.bd/Licensing/) |
 | Artist | Abu Sayed |
 
 ---
